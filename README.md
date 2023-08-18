@@ -24,7 +24,3 @@ Licensed under Creative Commons: By Attribution 4.0 License
 [We Shop Song - Philip Milman](https://www.youtube.com/watch?v=Y-6Plfn1yHg)
 
 [Tax Office (Day)](https://www.youtube.com/watch?v=2R8GGwIkx2I)
-
-"Teddy Bear Waltz" Kevin MacLeod ([incompetech.com](incompetech.com))
-Licensed under Creative Commons: By Attribution 4.0 License
-[http://creativecommons.org/licenses/by/4.0/](http://creativecommons.org/licenses/by/4.0/)
