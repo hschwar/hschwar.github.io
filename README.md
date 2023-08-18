@@ -19,9 +19,8 @@ Licensed under Creative Commons: By Attribution 4.0 License
 
 [otherside - Lena Raine](https://www.youtube.com/watch?v=kK81m-A3qpU)
 
-(The 25th Hour - Schlatt Crossing - Philip Milman)[https://www.youtube.com/watch?v=44MCworZf78]
+[The 25th Hour - Schlatt Crossing - Philip Milman](https://www.youtube.com/watch?v=44MCworZf78)
 
-(We Shop Song - Philip Milman)[https://www.youtube.com/watch?v=Y-6Plfn1yHg]
+[We Shop Song - Philip Milman](https://www.youtube.com/watch?v=Y-6Plfn1yHg)
 
-(Tax Office (Day))[https://www.youtube.com/watch?v=2R8GGwIkx2I]
-
+[Tax Office (Day)](https://www.youtube.com/watch?v=2R8GGwIkx2I)
